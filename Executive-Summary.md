@@ -81,14 +81,14 @@ Visionary leader with a background in entrepreneurship and deep appreciation for
 ### Loren (Co-Founder)
 Visionary leader with a background in entrepreneurship and deep appreciation for Cambodian culture.
 
-## Gerald Vineberg (Import/Export): 
+### Gerald Vineberg (Import/Export): 
 Expert in honest customer service with 40 years of experience.
 
 
 ### Sovann (Skin Expert)
 Brings extensive knowledge of traditional Cambodian skincare practices and product formulation expertise.
 
-## Insaf Nori (Cosmetologist): 
+### Insaf Nori (Cosmetologist): 
 PhD candidate at ENSA - Passionate, innovative, determined and committed to a sustainable energy future.
 
 These five team members, along with their shared commitment to a sustainable and community-focused venture, work collaboratively to create a meaningful and authentic skincare brand that embodies the spirit of Cambodia.
